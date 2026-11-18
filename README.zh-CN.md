@@ -32,9 +32,9 @@
 | 跳舞小猫 | 三只小猫夜里在路边用后腿站着跟着节奏跳舞。出自 @meowtakeover，2026 年 6 月 29 日，到 11 月 9 日 1.08 亿播放。 | 6 秒 / 11 秒 | 1–3 只猫 | [/kittens-dance-ai](https://mypetdance.com/zh/kittens-dance-ai) |
 | Smalltown Boy 猫 | 两只猫在红栅栏前轮流对着镜头尖叫、跳舞，配 Bronski Beat 的「Smalltown Boy」。 | 14 秒 | 1–2 只猫 | [/smalltown-boy-cat](https://mypetdance.com/zh/smalltown-boy-cat) |
 
-简单说：只有一只狗，先试 Left Right 狗狗舞、Hit the Road Dude 或 It's My Life 开车狗。猫多的话，跳舞小猫和 Suave 小猫舞能放不止一只。圣诞节就选 It's Time 圣诞小猫、宠物圣诞老人装和 Grinch 宠物滤镜。
+简单说：只有一只狗，先试 Left Right 狗狗舞、Hit the Road Dude 或 It's My Life 开车狗。猫多的话，跳舞小猫和 Suave 小猫舞能放不止一只。圣诞节就选 It's Time 圣诞小猫、宠物圣诞老人装和 Grinch 宠物滤镜；这三个放在一起、还能免费下载 GIF 的是[圣诞猫表情包](https://mypetdance.com/zh/christmas-cat-meme)和[圣诞狗表情包](https://mypetdance.com/zh/christmas-dog-meme)两页。
 
-网站上的其他指南：[AI 狗狗跳舞是怎么火起来的](https://mypetdance.com/zh/ai-dog-dancing-trend) · [怎么用 AI 让狗狗跳舞](https://mypetdance.com/zh/how-to-make-your-dog-dance-ai) · [跳舞狗表情包](https://mypetdance.com/zh/dancing-dog-meme) · [跳舞猫表情包](https://mypetdance.com/zh/dancing-cat-meme) · [AI 猫咪跳舞](https://mypetdance.com/zh/ai-cat-dance) · [狗狗跳舞 App](https://mypetdance.com/zh/dog-dancing-app) · [AI 狗狗跳舞 GIF](https://mypetdance.com/zh/ai-dog-dancing-gif) · [AI 猫咪跳舞 GIF](https://mypetdance.com/zh/ai-cat-dance-gif) · [全部模板](https://mypetdance.com/zh/templates)
+网站上的其他指南：[AI 狗狗跳舞是怎么火起来的](https://mypetdance.com/zh/ai-dog-dancing-trend) · [怎么用 AI 让狗狗跳舞](https://mypetdance.com/zh/how-to-make-your-dog-dance-ai) · [跳舞狗表情包](https://mypetdance.com/zh/dancing-dog-meme) · [跳舞猫表情包](https://mypetdance.com/zh/dancing-cat-meme) · [圣诞猫表情包](https://mypetdance.com/zh/christmas-cat-meme) · [圣诞狗表情包](https://mypetdance.com/zh/christmas-dog-meme) · [AI 猫咪跳舞](https://mypetdance.com/zh/ai-cat-dance) · [狗狗跳舞 App](https://mypetdance.com/zh/dog-dancing-app) · [AI 狗狗跳舞 GIF](https://mypetdance.com/zh/ai-dog-dancing-gif) · [AI 猫咪跳舞 GIF](https://mypetdance.com/zh/ai-cat-dance-gif) · [全部模板](https://mypetdance.com/zh/templates)
 
 ## 每个宠物热梗视频怎么做
 
